@@ -8,4 +8,4 @@ Info
 /////////////
 Communication
 - If you need something, DM me on Discord (iykyk, otherwise ask someone who does, again, iykyk--)
-- It may take me a while to respond because my brain struggles to process things in verbal/written form sometimes and often overthinks, so please bear with :']
+- It may take me a while to respond because my brain struggles to process things sometimes and often overthinks, so bear with :']
